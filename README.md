@@ -9,6 +9,8 @@ Google Jamboard Vs Dojoit – It’s High Time You picked A Side. An online whit
 
 Dojoit&#39;s [online whiteboard for education](https://www.dojoit.com/online-whiteboard-for-education) makes distant and in-class studying simple, participating, and enjoyable.
 
+HELLO FROM FAHIM HASAN, Digital Marketing Executive, Semicolon IT Solutions - [Digital Marketing Company in Bangladesh](https://semicolonit.com/digital-marketing-company-in-bangladesh/)
+
 ### Engage college students past the classroom
 
 Seamlessly transition between the classroom and distant studying. Dojoit allows flexibility and new methods to stimulate lively participation and studying.
